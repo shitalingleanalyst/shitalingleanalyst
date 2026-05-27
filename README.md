@@ -1,5 +1,5 @@
 ## Hi there 👋 I'm Shital Ingle 
-
+A passionate Data Analyst 
 Email me ingletejaswini692@gmail.com for project and anything else...
 
 - 🔭 I’m currently working on ...
